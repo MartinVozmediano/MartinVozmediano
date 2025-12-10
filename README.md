@@ -8,3 +8,4 @@
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I like to train Taekwondo and Soccer
 
+![PHOTO-2025-12-09-19-05-49](https://github.com/user-attachments/assets/dc8f19ae-d07c-4dd2-acfa-e8ca82717e64)
